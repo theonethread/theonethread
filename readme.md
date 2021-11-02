@@ -1,3 +1,3 @@
 ### Pledge
 
-I'd like to make you think your workflow **is** simple - though doing its job extraordinary through Digital Transformation.
+I'd like to make you think that your workflow is **simple** - though doing its job extraordinarily through Digital Transformation.
